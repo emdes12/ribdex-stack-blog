@@ -9,3 +9,4 @@ image: /assets/blog/screenshot_20240807-205827_1.png
 imageAlt: Become real estate consultant
 ---
 # How to Become a Real Estate Consultant Without a Degree
+Let your passion for real estate guide you to a rewarding and successful career!﻿
