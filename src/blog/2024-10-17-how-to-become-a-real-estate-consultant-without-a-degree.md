@@ -82,7 +82,7 @@ You can become a successful real estate consultant without a degree by developin
 
 At Ribdex Global, we offer comprehensive training through our **Professional Real Estate Consultancy (PRC) Academy**. This program equips aspiring consultants with the knowledge, skills, and network needed to excel in the real estate industry.
 
-**Ready to start your journey?** Book a meeting with us today and get started on your path to becoming a professional real estate consultant. Call **09033756052** now!
+**Ready to start your journey?** Book a meeting with us today and get started on your path to becoming a professional real estate consultant. Call **+2348124232695** now!
 
 - - -
 
