@@ -1,5 +1,5 @@
 ---
-title: "# Exciting News: Thames International Now Open for January and March Intakes!"
+title: "Exciting News: Thames International Now Open for January and March Intakes!"
 description: Thames International, students can start their degree in the
   Philippines 🇵🇭 for the first two years and then transfer to one of our
   prestigious partner universities in the USA 🇺🇸, Australia 🇦🇺, UK 🇬🇧,
