@@ -1,7 +1,7 @@
 ---
-title: "Ribdex Global to Take Over Visa Services in 26 New Countries:
-  Streamlining the Process for International Travelers"
-description: In a significant move to enhance visa application services, Ribdex
+title: "Vfs Global to Take Over Visa Services in 26 New Countries: Streamlining
+  the Process for International Travelers"
+description: In a significant move to enhance visa application services, Vfs
   Global is set to take over visa services from TLScontact in 26 new countries
   across Africa, Europe, the Middle East, and Central Asia. This transition,
   which started in September 2024 and will continue until January 2025, is
